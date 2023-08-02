@@ -1,4 +1,4 @@
-Chapter: Fostering Knowledge Sharing and Mentorship
+Fostering Knowledge Sharing and Mentorship
 ===================================================
 
 In this chapter of **The Power of Intentional Leadership: Leading with Purpose, Vision, and Action**, we will explore the importance of fostering knowledge sharing and mentorship within an intentional leadership framework. Creating a culture that promotes collaboration, learning, and mentorship not only enhances individual and team performance but also drives organizational growth and success. This chapter aims to provide insights and strategies for leaders to effectively foster knowledge sharing and mentorship initiatives.

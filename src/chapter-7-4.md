@@ -1,4 +1,4 @@
-Chapter: Fostering a Growth Mindset
+Fostering a Growth Mindset
 ===================================
 
 In this chapter of **"The Power of Intentional Leadership: Leading with Purpose, Vision, and Action"**, we will explore the concept of fostering a growth mindset as a leader. A growth mindset is a powerful tool that enables individuals to embrace challenges, persist in the face of setbacks, and continually learn and grow. As leaders, cultivating a growth mindset within ourselves and our teams can drive innovation, enhance resilience, and foster a culture of continuous improvement.

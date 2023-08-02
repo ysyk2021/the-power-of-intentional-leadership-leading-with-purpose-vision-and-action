@@ -1,4 +1,4 @@
-Chapter: Avoiding Information Overload
+Avoiding Information Overload
 ======================================
 
 In this chapter of **"The Power of Intentional Leadership: Leading with Purpose, Vision, and Action"**, we will explore strategies and techniques for avoiding information overload in the digital age. As leaders navigate a rapidly evolving business landscape, they are bombarded with an overwhelming amount of information from various sources. This abundance of information can hinder productivity, decision-making, and overall effectiveness. This chapter provides practical tips to help leaders filter, prioritize, and manage information effectively, enabling them to maintain focus, make informed decisions, and lead with intention.

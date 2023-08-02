@@ -1,4 +1,4 @@
-Chapter: Communicating Effectively
+Communicating Effectively
 ==================================
 
 In this chapter of **"The Power of Intentional Leadership: Leading with Purpose, Vision, and Action"**, we will explore the importance of effective communication in leadership. Effective communication is a cornerstone of successful leadership, enabling leaders to convey their vision, inspire others, build strong relationships, and drive positive change. In this section, we will delve into strategies for enhancing your communication skills as a leader.

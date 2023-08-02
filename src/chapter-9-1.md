@@ -1,4 +1,4 @@
-Chapter: Identifying Intentional Leadership Technologies and Resources
+Identifying Intentional Leadership Technologies and Resources
 ======================================================================
 
 In this chapter of **The Power of Intentional Leadership: Leading with Purpose, Vision, and Action**, we will delve into the various technologies and resources that can support intentional leadership. In today's digital age, leaders have access to a wide range of tools and platforms that can enhance their leadership effectiveness, promote collaboration, and drive results. This chapter aims to provide insights into the key technologies and resources that intentional leaders can leverage to maximize their impact and create a culture of purpose-driven action.

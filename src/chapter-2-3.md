@@ -1,4 +1,4 @@
-Chapter: Assessing Your Personal Approach to Leadership
+Assessing Your Personal Approach to Leadership
 =======================================================
 
 In this chapter of **"The Power of Intentional Leadership: Leading with Purpose, Vision, and Action"**, we will explore the process of assessing your personal approach to leadership. Self-reflection and evaluation are crucial for becoming an intentional leader. By understanding your strengths, weaknesses, and values, you can develop a clear understanding of your leadership style and identify areas for growth and improvement. In this section, we will provide a framework for assessing your personal approach to leadership.

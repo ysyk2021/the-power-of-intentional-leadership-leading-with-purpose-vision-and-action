@@ -1,4 +1,4 @@
-Chapter: Overview of Intentional Leadership
+Overview of Intentional Leadership
 ===========================================
 
 In this chapter of **"The Power of Intentional Leadership: Leading with Purpose, Vision, and Action"**, we will provide an overview of intentional leadership and its significance in driving success. Intentional leadership is a deliberate approach to leading that emphasizes purposeful actions, clear vision, and decisive execution. In this section, we explore the key components and principles of intentional leadership.
