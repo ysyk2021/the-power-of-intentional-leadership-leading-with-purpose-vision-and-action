@@ -48,5 +48,3 @@ Intentional leaders must be adaptable and open to change in order to stay ahead 
 * **Fostering a culture of continuous improvement**: Creating a culture of continuous improvement can encourage team members to seek out new opportunities and take risks.
 
 By implementing these strategies, leaders can become more intentional in their actions, build stronger relationships with their team members, and achieve greater success in their goals.
-
-
