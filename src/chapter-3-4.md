@@ -1,7 +1,7 @@
 Developing Empathy and Compassion through Intentional Leadership
 =========================================================================
 
-In this chapter of **"The Power of Intentional Leadership: Leading with Purpose, Vision, and Action"**, we will explore the importance of developing empathy and compassion as a leader. By intentionally cultivating these qualities, you can create a positive and supportive work environment, build meaningful connections with your team members, and enhance your overall leadership effectiveness.
+In this chapter, we will explore the importance of developing empathy and compassion as a leader. By intentionally cultivating these qualities, you can create a positive and supportive work environment, build meaningful connections with your team members, and enhance your overall leadership effectiveness.
 
 
 

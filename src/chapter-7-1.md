@@ -1,7 +1,7 @@
 Identifying Common Sources of Resistance to Intentional Leadership
 ===========================================================================
 
-In this chapter of **"The Power of Intentional Leadership: Leading with Purpose, Vision, and Action"**, we will explore the common sources of resistance that leaders may encounter when implementing intentional leadership practices. It is essential for leaders to identify and understand these sources of resistance in order to effectively navigate and overcome them.
+In this chapter, we will explore the common sources of resistance that leaders may encounter when implementing intentional leadership practices. It is essential for leaders to identify and understand these sources of resistance in order to effectively navigate and overcome them.
 
 
 

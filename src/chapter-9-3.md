@@ -1,7 +1,7 @@
 Fostering Accessibility and Inclusivity
 ================================================
 
-In this chapter of **The Power of Intentional Leadership: Leading with Purpose, Vision, and Action**, we will explore the importance of fostering accessibility and inclusivity as intentional leaders. In today's diverse and interconnected world, it is crucial for leaders to create environments where everyone can thrive, regardless of their abilities, backgrounds, or identities. This chapter aims to provide insights and strategies that leaders can employ to foster accessibility and inclusivity within their organizations.
+In this chapter,to create environments where everyone can thrive, regardless of their abilities, backgrounds, or identities. This chapter aims to provide insights and strategies that leaders can employ to foster accessibility and inclusivity within their organizations.
 
 
 

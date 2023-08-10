@@ -1,7 +1,7 @@
 Common Misconceptions About Leadership
 ===============================================
 
-In this chapter of **"The Power of Intentional Leadership: Leading with Purpose, Vision, and Action"**, we will explore some common misconceptions about leadership. These misconceptions often stem from outdated beliefs or misunderstandings about what it truly means to be a leader. By dispelling these misconceptions, we can gain a clearer understanding of effective leadership principles and practices.
+In this chapter, we will explore some common misconceptions about leadership. These misconceptions often stem from outdated beliefs or misunderstandings about what it truly means to be a leader. By dispelling these misconceptions, we can gain a clearer understanding of effective leadership principles and practices.
 
 
 
