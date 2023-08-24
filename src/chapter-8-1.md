@@ -1,5 +1,3 @@
-Encouraging Proactive Intentional Leadership Across the Organization
-=============================================================================================================================
 
 Creating a culture of intentional leadership is essential for enhancing organizational performance and achieving long-term success. In this chapter, we'll explore how intentional leaders can encourage proactive intentional leadership across the organization.
 

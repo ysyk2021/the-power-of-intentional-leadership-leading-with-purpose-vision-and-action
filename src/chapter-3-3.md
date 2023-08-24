@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-===============================================================================================
 
 Developing an intentional leadership mindset begins with setting realistic goals and objectives. In this chapter, we will explore the importance of setting realistic goals and objectives, and how intentional leaders can develop a mindset that allows them to achieve those goals.
 

@@ -1,4 +1,3 @@
-# Conclusion
 
 In this book, we've explored the importance of intentional leadership and strategies for leading with purpose, vision, and action. In this final chapter, we'll recap the key strategies covered in the book and offer some final thoughts and advice for intentional leaders.
 

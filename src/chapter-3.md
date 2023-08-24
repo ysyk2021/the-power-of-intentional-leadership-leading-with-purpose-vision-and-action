@@ -1,5 +1,3 @@
-Chapter 3: Developing an Intentional Leadership Mindset
-=======================================================
 
 To become an effective and intentional leader, it is important to cultivate a mindset that promotes purposeful action, clear vision, and strong values. This chapter will explore techniques for developing an intentional leadership mindset, including utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through intentional leadership.
 

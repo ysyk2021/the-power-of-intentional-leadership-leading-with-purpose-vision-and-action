@@ -1,5 +1,3 @@
-Chapter 4: Understanding the Power of Intentional Leadership
-============================================================
 
 Understanding the power of intentional leadership is essential for achieving success in any leadership role. In this chapter, we'll explore the benefits of focusing on intentional leadership, how intentional leadership contributes to success, the impact of intentional leadership on individuals and organizations, and how to address limiting beliefs that may be holding you back.
 

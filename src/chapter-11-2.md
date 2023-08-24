@@ -1,5 +1,3 @@
-Final Thoughts and Advice
-=================================================
 
 Intentional leadership is a powerful approach to leadership that can help individuals and organizations achieve greater success. In this book, we've explored the principles of intentional leadership, strategies for leading with purpose, vision, and action, and how to overcome resistance and leverage technology to enhance intentional leadership.
 

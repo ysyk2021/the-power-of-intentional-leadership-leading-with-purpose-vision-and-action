@@ -1,5 +1,3 @@
-Overview of Intentional Leadership
-==================================
 
 In this chapter, we will explore the concept of intentional leadership and its significance in driving purposeful, visionary, and action-oriented leadership. Intentional leadership involves the deliberate and conscious practice of leading with a clear sense of purpose and direction.
 

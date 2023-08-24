@@ -1,9 +1,5 @@
-Avoiding Information Overload
-======================================
 
 In this chapter,ital age. As leaders navigate a rapidly evolving business landscape, they are bombarded with an overwhelming amount of information from various sources. This abundance of information can hinder productivity, decision-making, and overall effectiveness. This chapter provides practical tips to help leaders filter, prioritize, and manage information effectively, enabling them to maintain focus, make informed decisions, and lead with intention.
-
-
 
 Information overload occurs when the volume and complexity of available information exceed an individual's capacity to process and absorb it effectively. This phenomenon is particularly relevant in today's digital era, where leaders have access to vast amounts of data, news, emails, reports, and social media updates. To lead with purpose, vision, and action, leaders must develop strategies to avoid getting overwhelmed by information and utilize their time and attention wisely.
 

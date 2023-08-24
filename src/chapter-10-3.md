@@ -1,5 +1,3 @@
-Continuous Learning and Improvement
-===============================================================================================
 
 Continuous learning and improvement are essential for intentional leaders. In this chapter, we'll explore how intentional leaders can pursue ongoing learning and improvement to enhance their effectiveness and achieve greater impact and success in their roles.
 

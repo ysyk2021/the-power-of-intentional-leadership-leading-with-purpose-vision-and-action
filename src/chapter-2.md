@@ -1,5 +1,3 @@
-Chapter 2: Defining Intentional Leadership
-==========================================
 
 Intentional leadership is a powerful approach to leadership that emphasizes purposeful action, clear vision, and strong values. In this chapter, we will explore what intentional leadership is, the science behind effective leadership, and how to assess your personal approach to leadership.
 

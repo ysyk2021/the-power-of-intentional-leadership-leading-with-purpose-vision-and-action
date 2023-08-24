@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-================================================================================================
 
 Adapting to changes in the workplace is an essential aspect of intentional leadership. In this chapter, we'll explore how intentional leaders can adapt to changes in the workplace by measuring results and learning from experience.
 

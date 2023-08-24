@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Intentional Leadership
-========================================================
 
 Managing resistance to intentional leadership is an important aspect of achieving success as a leader. In this chapter, we'll explore how intentional leaders can identify common sources of resistance to intentional leadership, develop strategies for overcoming resistance, address fear and uncertainty, and foster a growth mindset.
 

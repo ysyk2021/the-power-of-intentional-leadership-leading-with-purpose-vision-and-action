@@ -1,5 +1,3 @@
-Chapter 8: Creating a Culture of Intentional Leadership
-=======================================================
 
 Creating a culture of intentional leadership is essential for achieving long-term success in any organization. In this chapter, we'll explore how intentional leaders can create a culture of intentional leadership and inspire their team members to lead with purpose, vision, and action.
 

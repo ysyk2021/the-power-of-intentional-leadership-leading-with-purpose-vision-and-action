@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Intentional Leadership
-===========================================================================
 
 In this chapter, we will explore the fundamental principles that underpin effective intentional leadership. As leaders, it is crucial to have a clear understanding of these principles in order to lead with purpose, vision, and action. By embracing these principles, we can inspire and empower those we lead to achieve their fullest potential.
 

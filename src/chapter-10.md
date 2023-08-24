@@ -1,5 +1,3 @@
-Chapter 10: Measuring Results and Learning from Experience
-==========================================================
 
 Measuring results and learning from experience are essential for intentional leaders. In this chapter, we'll explore how intentional leaders can track progress, reflect on their experiences, and continuously improve their leadership skills.
 

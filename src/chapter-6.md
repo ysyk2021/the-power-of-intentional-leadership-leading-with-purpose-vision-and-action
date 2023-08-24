@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Intentional Leadership Skills
-========================================================
 
 Intentional leadership is a powerful approach to leading others that involves setting clear goals, developing a compelling vision, and taking purposeful action. To become an effective intentional leader, it's important to develop your skills and strategies for leading with purpose, vision, and action. In this chapter, we will explore the principles of effective intentional leadership and strategies for developing your leadership skills.
 

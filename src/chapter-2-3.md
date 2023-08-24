@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Leadership
-=======================================================
 
 Leadership is not simply about holding a position of authority or making decisions that impact others. It goes beyond the superficial aspects and requires a deep understanding of oneself as well as the ability to inspire and guide others towards a common goal. One's personal approach to leadership plays a vital role in determining the effectiveness and success of their leadership style.
 

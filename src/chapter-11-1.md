@@ -1,5 +1,3 @@
-Recap of Key Strategies for Leading with Purpose, Vision, and Action
-============================================================================================
 
 In this book, we explored the power of intentional leadership and strategies for leading with purpose, vision, and action. In this final chapter, we will recap some of the key strategies discussed throughout the book.
 

@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Intentional leadership is a powerful approach to leadership that emphasizes purposeful action, clear vision, and strong values. In this chapter, we will explore the importance of intentional leadership, common misconceptions about leadership, and the benefits of leading with purpose, vision, and action.
 

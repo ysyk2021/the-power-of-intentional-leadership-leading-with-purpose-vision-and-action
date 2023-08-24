@@ -1,9 +1,5 @@
-Identifying Common Sources of Resistance to Intentional Leadership
-===========================================================================
 
 In this chapter, we will explore the common sources of resistance that leaders may encounter when implementing intentional leadership practices. It is essential for leaders to identify and understand these sources of resistance in order to effectively navigate and overcome them.
-
-
 
 Resistance to intentional leadership refers to the opposition or reluctance encountered by leaders when trying to introduce and embed intentional leadership practices within an organization. Understanding the underlying sources of resistance can help leaders develop strategies to address and mitigate them, fostering a culture that embraces intentional leadership principles.
 

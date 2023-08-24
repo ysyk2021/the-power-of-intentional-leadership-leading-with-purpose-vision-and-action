@@ -1,5 +1,3 @@
-Developing Strategies for Leading with Purpose, Vision, and Action
-=============================================================================
 
 In this chapter, we will explore the importance of developing strategies that align with purpose, vision, and action. Effective leaders understand the significance of these three elements and their interconnectedness in driving success.
 

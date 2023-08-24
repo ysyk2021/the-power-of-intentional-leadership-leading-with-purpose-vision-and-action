@@ -1,5 +1,3 @@
-The Benefits of Focusing on Intentional Leadership
-===========================================================
 
 In today's fast-paced and ever-changing world, effective leadership has become more crucial than ever before. As leaders, it is essential to understand the power of intentional leadership and its significant impact on organizational success. This chapter explores the numerous benefits that come with focusing on intentional leadership and highlights why it is a valuable approach for leaders in any industry.
 

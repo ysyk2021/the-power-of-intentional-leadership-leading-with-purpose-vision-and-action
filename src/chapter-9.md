@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Intentional Leadership
-===========================================================
 
 In today's digital age, technology can be a powerful tool for intentional leaders. In this chapter, we'll explore how intentional leaders can leverage technology to enhance their leadership experience and promote a culture of intentional leadership.
 

@@ -1,5 +1,3 @@
-Communicating Effectively
-====================================
 
 Effective communication is a cornerstone of intentional leadership. It serves as a bridge that connects leaders with their team members, stakeholders, and the broader community. When leaders communicate effectively, they inspire, motivate, and align individuals towards a common vision. This chapter will explore key principles and strategies for enhancing communication skills.
 
