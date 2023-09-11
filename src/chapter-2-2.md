@@ -1,5 +1,4 @@
-Chapter: Understanding the Science Behind Effective Leadership
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the science behind effective leadership---uncovering the research and theories that contribute to our understanding of what makes a leader successful. By exploring the scientific foundations of leadership, we can gain insights and strategies to enhance our own leadership capabilities.
 
